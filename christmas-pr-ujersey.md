@@ -22,12 +22,9 @@ Because custom pieces and peak-season shipping take longer, the Christmas warm-u
 
 Ujersey focuses on authentic-style designs at approachable prices, covering men’s, women’s, and youth sizes across major U.S. sports. From Rivalry Collection looks to throwbacks and modern player jerseys, the store positions holiday shopping as a fan tradition: choose the team, choose the player, and celebrate the season in colors that matter.
 
-Shop early at https://ujersery.us/ and make this Christmas a home win for every sports fan on your list.
+Shop early and make this Christmas a home win for every sports fan on your list.
 
 ###
 
 **Media Contact**  
-Ujersey Customer Experience  
-Website: https://ujersery.us/
-
-**Word count:** ~320
+Ujersey Customer Experience
