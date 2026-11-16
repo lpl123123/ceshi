@@ -1,10 +1,10 @@
 # FOR IMMEDIATE RELEASE
 
-**Ujersey Launches Christmas Jersey Gift Warm-Up: Score Team Pride Before the Holidays**
+**Wrap the Win Early: Ujersey Opens Christmas Jersey Gift Warm-Up for Holiday Delivery**
 
 **November 16, 2026** — Sports fans looking for meaningful holiday gifts can get ahead of the rush this season. [Ujersey](https://ujersery.us/), the online destination for authentic-style NFL, MLB, NBA, NHL, and NCAA jerseys, is kicking off its Christmas warm-up campaign—inviting shoppers to lock in game-day gear early and gift team spirit without the last-minute scramble.
 
-![Ujersey logo](https://img.ujersery.us/2026/01/ujersery-logo-3.png)
+![Christmas jersey gift under the tree](assets/ujersey-christmas-jersey-gift.jpg)
 
 This year’s holiday message is simple: wrap loyalty, not stress. Whether it’s a Super Bowl–ready NFL jersey for Dad, a classic MLB look for a baseball diehard, or a custom name-and-number piece for a devoted fan, Ujersey makes premium-feel fanwear accessible for the whole family. Explore current team and league selections across the [Ujersey Collections](https://ujersery.us/index.php/ujersey-collections/) to match every rivalries fan, campus supporter, and court-side believer on your list.
 
